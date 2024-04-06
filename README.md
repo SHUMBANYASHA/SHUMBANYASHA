@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...Data analysis
 - 💞️ I’m looking to collaborate on ...data driven projects
 - 📫 How to reach me ...0737215410
-- 😄 Pronouns: ...N_Y_A_S_H_A
+- 😄 Pronouns: ...N_Y_A_S_H_A%>S_H_U_M_B_A
 - ⚡ Fun fact: ...Lions dont lose sleep over the opinions of sheep
 
 <!---
